@@ -3,4 +3,4 @@
 #Its work nice but if you have any suggestion regarding this game. Let me know that
 #To play press space or tap
 #cheat sheet
-#just pres enter for it
+#just press enter for it
